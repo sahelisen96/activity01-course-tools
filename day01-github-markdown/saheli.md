@@ -1,4 +1,4 @@
-## Day 01 - Activity 01
+## Activity 01 - Day 01
 ### Saheli Sen
 
 **The below meme I've chosen to describe my emotion on the first day of the school as well as first class.
